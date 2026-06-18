@@ -75,6 +75,7 @@ I became something else . ”
 : ✗ I don't like being forgotten .
 : ✗ i hate loud arguments .
 : ✗ i hate being left behind .
+: ✗ asr##l and v#ll# DNIIII DNIIII STRICTLY DNIIII ://///
 { etc . . }
 ```
 
