@@ -76,7 +76,6 @@ I became something else . ”
 : ✗ i hate loud arguments .
 : ✗ i hate being left behind .
 : ✗ don't use my old name , I don't like it ( 3l1s )
-: ✗ asr##l and v#ll# DNIIII DNIIII STRICTLY DNIIII ://///
 { etc . . }
 ```
 
